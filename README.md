@@ -1,5 +1,5 @@
 
-![ImageForArticle_304(1)](https://github.com/IbrahimXXs/IbrahimXXs/assets/146712453/d1a3d5ef-cf05-4d5a-a625-6bdb432a9881)
+![robot-human-1024x576](https://github.com/IbrahimXXs/IbrahimXXs/assets/146712453/65ff4060-5f8e-41a0-bf3c-1f0363b7f6e8)
 
 
 - 👋 Hi, I’m @IbrahimXXs
