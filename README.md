@@ -1,5 +1,6 @@
 
-![Robotics-technology-for-Industry](https://github.com/IbrahimXXs/IbrahimXXs/assets/146712453/3d075965-3a71-4246-bc03-ecf0b82c7678)
+![ImageForArticle_304(1)](https://github.com/IbrahimXXs/IbrahimXXs/assets/146712453/d1a3d5ef-cf05-4d5a-a625-6bdb432a9881)
+
 
 - 👋 Hi, I’m @IbrahimXXs
 - 👀 I’m interested in Robotics Field
